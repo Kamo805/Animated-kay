@@ -1,2 +1,0 @@
-# Animated-kay
-Master mind
